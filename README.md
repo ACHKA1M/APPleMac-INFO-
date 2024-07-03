@@ -4,6 +4,9 @@ download link :https://mega.nz/file/QjhHgSZK#pFZaN7Wyw0lGptM0CP4Ds9dmrlyeUpfrhai
 
 telegram :https://t.me/macOSbypassIcloud
 
+<img width="552" alt="Screen Shot 2024-06-19 at 9 57 33 PM" src="https://github.com/ACHKA1M/APPleMac-INFO-/assets/72109554/d3312b80-acbb-4a93-9c15-8803a9025a00">
+
+
 <img width="544" alt="Screenshot 2024-07-03 at 9 15 31 PM" src="https://github.com/ACHKA1M/APPleMac-INFO-/assets/72109554/7f030e12-4569-4bb6-affc-e309c78c318b">
 
 <img width="546" alt="Screenshot 2024-07-03 at 9 14 15 PM" src="https://github.com/ACHKA1M/APPleMac-INFO-/assets/72109554/d20f0eae-b5c0-4c97-a64e-22a2e28cedf8">
